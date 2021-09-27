@@ -6,7 +6,7 @@ Yokoso,this is the space where you will get to see what we actualy hold.
 
 2)Eeshan joshi
 
-3)Saujanya chavan
+3)Soujanya chavan
 
 4)Vansh jain
   
