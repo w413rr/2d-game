@@ -1,3 +1,15 @@
+# Hello! 👋
+Yokoso,this is the space where you will get to see what we actualy hold.
+
+# Mates:-
+1)Pranav chopdekar 
+
+2)Eeshan joshi
+
+3)Saujanya chavan
+
+4)Vansh jain
+  
 # HISTORIC GAME
                                                                                      
 	Entertainment is one of the most important aspects of one's life. 
